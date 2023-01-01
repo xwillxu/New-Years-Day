@@ -11,4 +11,4 @@ Just to give you a little background there are were two fireworks shows in 2008 
 
 Okay now lets start with Sydney: The Sydney Fireworks Show was more majestic and complexed than the 2008 Initial Fireworks Show. When compared with the 2008 Ending Fireworks Show it would be somewhere in second or third. 2008 Ending Fireworks Show would be in first place. The real difference between them being the foot steps.
 
-Now lets finish this blog post strong with Paris: Just
+Now lets finish this blog post strong with Paris: Just like the Sydney Fireworks Show it more beautiful in it's entirety not just the begining

@@ -20,4 +20,7 @@ end of the Paris Fireworks Show and the 2008 Ending Fireworks Show Paris won. Bu
 lower chance of getting second place.
 
 ### When you can't think of anything else be like. LOL!
-Sorry I can't make this post longer, it's because I can not think of anything else about fireworks. Though you may already know this because of the title.
+Sorry I can't make this post longer, it's because I can not think of anything else about fireworks. Though you may already know this because of the title. Next year I
+will try to make it better so thhis will be one of my resolutions. HAVE A HAPPY NEW YEAR!
+
+## 2023: 

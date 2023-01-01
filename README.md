@@ -9,4 +9,4 @@ I have currently seen a bunch of firework shows but, two really stick out to me.
 In the previous subtitle I talked about the greatest firework shows of the new year. Now I'm going to compare them with the 2008 Bejing Olympics Fireworks Show.
 Just to give you a little background there are were two fireworks shows in 2008 opening ceremony. One at the start one at the end. We will call fireworks show number one 2008 Initial Fireworks Show. We will call the other one 2008 Ending Fireworks Show.
 
-Okay now lets start with Sydney: The Sydney Fireworks Show was more majestic and complexed than the 2008 Initial Fireworks Show. When compared with the 2008 Ending Fireworks Show it would be somewhere in second or third
+Okay now lets start with Sydney: The Sydney Fireworks Show was more majestic and complexed than the 2008 Initial Fireworks Show. When compared with the 2008 Ending Fireworks Show it would be somewhere in second or third. 2008 Ending Fireworks Show would be in first place

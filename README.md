@@ -7,3 +7,5 @@ I have currently seen a bunch of firework shows but, two really stick out to me.
 
 ### 2008 Bejing Olympics Fireworks VS 2023 New Year Firework Shows.
 In the previous subtitle I talked about the greatest firework shows of the new year. Now I'm going to compare them with the 2008 Bejing Olympics Fireworks Show.
+Just to give you a little background there are were two fireworks shows in 2008 opening ceremony. One at the start one at the end.
+Ok lets start with Sydney: 
